@@ -14,7 +14,7 @@ I'm constantly seeking new challenges such as self-taught and opportunities to l
 - 😄 Pronouns: he/him
 - 🌐 中文 · English
 - 📬 b2504420230@gmail.com
-- ⏰ 10:00 - 12:30 「[UTC+8](https://time.is/UTC+8)」
+- ⏰ 10:00 - 00:30 「[UTC+8](https://time.is/UTC+8)」
 
 <!-- - 📫 How to reach me:
    <details>
